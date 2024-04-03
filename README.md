@@ -53,4 +53,5 @@ As an electronic technician the most important part of an atom is the Electrons.
 
 - https://www.makerhero.com/
 - https://www.smartkits.com.br/
+  - frete grátis acima de R$ 300,00
 - https://www.wjcomponentes.com.br
