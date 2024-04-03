@@ -48,3 +48,9 @@ Everything that it pertains to electricity and electronics is traceable back to 
 As an electronic technician the most important part of an atom is the Electrons.
 
 [./Parts-of-an-Atom-Diagram.jpg](./Parts-of-an-Atom-Diagram.jpg)
+
+### Shopping
+
+- https://www.makerhero.com/
+- https://www.smartkits.com.br/
+- https://www.wjcomponentes.com.br
